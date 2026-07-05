@@ -33,11 +33,11 @@
 
 ## 💬 Let's Build Something Awesome Together!
 
-📧 **Email:** YOUR_EMAIL@gmail.com
+📧 **Email:** adamomarsliem@gmail.com
 
-🎵 **TikTok:** @YOUR_TIKTOK_USERNAME
+🎵 **TikTok:** @adam9884
 
-💻 **GitHub:** github.com/YOUR_GITHUB_USERNAME
+💻 **GitHub:** github.com/adamomar53
 
 🎮 **Discord:** YOUR_USERNAME
 
